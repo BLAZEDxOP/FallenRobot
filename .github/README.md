@@ -8,7 +8,7 @@
   <img src="https://te.legra.ph/file/703d8a9ede520a9973671.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](http://t.me/Dark_X_Robot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝐃𝐀𝐑𝐊 ✘ 𝐑𝐎𝐁𝐎𝐓](http://t.me/Dark_X_Robot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
